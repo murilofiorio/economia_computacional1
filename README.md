@@ -1,1 +1,0 @@
-# Economia-Computacional-1
